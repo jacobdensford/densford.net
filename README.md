@@ -1,3 +1,3 @@
 # densford.net
 
-Home of the Densford family on the 'net.
+Home of the Densford family on the 'net. Some of us, anyway.
